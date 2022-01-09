@@ -1,5 +1,4 @@
-hmm
-
+.　˚ 　.　 ✦˚　　 *　　.　　˚　　.　　✦　　˚　　*　　　.  　*　　.   　 :earth_americas:　*　  .　˚　　　*　     　*　　　　.　. 　　 　*      　　 ✦  　 :waxing_crescent_moon: 　 ˚　　*　. 　˚　 .　*　　. 　˚　*　　. 　˚　　.　*　　. ✦ 　　˚　.　*
 <!-- ![image](https://github.com/redhathacker/redhathacker/blob/master/dino.gif) -->
 <!-- ![image](https://github.com/redhathacker/redhathacker/blob/master/NmhO.gif) -->
 
